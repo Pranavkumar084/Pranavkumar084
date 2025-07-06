@@ -1,4 +1,4 @@
-
+EEE Student | MATLAB, PSCAD, Data Science & Data Analysis Enthusiast | Exploring Python & C | Passionate about Electrical Systems & Simulations
 
  Hi, I'm Pranav 👋
 
